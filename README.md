@@ -15,8 +15,6 @@ I partner cross-functionally with brand, creative, growth, and leadership teams 
 ## Brooklyn Museum  
 **Paid Media Optimization & Campaign Delivery**
 
-<img src="images/brooklyn-museum.png" width="800">
-
 **Objective**  
 Drive awareness and ticket conversions for major exhibitions through cross-channel paid media while ensuring accurate delivery, pacing, and tracking integrity.
 
