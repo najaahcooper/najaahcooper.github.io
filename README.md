@@ -15,6 +15,8 @@ I partner cross-functionally with brand, creative, growth, and leadership teams 
 ## Brooklyn Museum  
 **Paid Media Optimization & Campaign Delivery**
 
+<img src="images/brooklyn-impressions.png" width="800">
+
 **Objective**  
 Drive awareness and ticket conversions for major exhibitions through cross-channel paid media while ensuring accurate delivery, pacing, and tracking integrity.
 
@@ -104,6 +106,4 @@ As CRM Manager, owned weekly content strategy for **Marvel Pulse** and **Marvel 
 
 📩 **Contact:**  
 LinkedIn: linkedin.com/in/nhcooper  
-Portfolio: [https://najaahcooper.github.io](https://docs.google.com/presentation/d/1JbwxEX_7EwiR62ug-QR7YGtUVYYXVsdIMDliUFNwWyQ/edit?usp=sharing
-
-
+Portfolio:https://docs.google.com/presentation/d/1JbwxEX_7EwiR62ug-QR7YGtUVYYXVsdIMDliUFNwWyQ/edit?usp=sharing
